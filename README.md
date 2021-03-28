@@ -14,11 +14,6 @@
 
 ---
 
-
-- Get BarBarKey on [this site](https://mhankbarbar.tech)
-
----
-
 ## Instalar
 Siga os passos abaixo!
 
@@ -205,8 +200,6 @@ Siga os passos abaixo!
 | NSFW Ass|✅|
 | NSFW Bobs|✅|
 | NSFW Sidebobs|✅|
-
-
 
 | DONO | sim |
 | :-----------------: | :-------: |
